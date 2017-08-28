@@ -2,6 +2,6 @@
 
 Hi Humans!
 
-Kage hare, I
+ShimaKage hare, I
 
 Yeah!!!
